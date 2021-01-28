@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sneha24102000@gmail.com**
 
-- ⚡ Fun fact **I am amusing and hilarious**
+- ⚡ Fun fact **I am amusing and funny XD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
