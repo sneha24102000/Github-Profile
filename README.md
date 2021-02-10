@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **I am amusing and funny XD**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me via:</h3>
 <p align="left">
 <a href="https://twitter.com/snehara76137026" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg" alt="snehara76137026" height="30" width="40" /></a>
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/sneha-m-286642172/" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="https://www.linkedin.com/in/sneha-m-286642172/" height="30" width="40" /></a>
